@@ -5,11 +5,11 @@
 
 - 💬 Ask me about **anything you want, i'll try to answer**
 
-- 📫 How to reach me **ze_nabas@hotmail.com**
+- 📫 How to reach me: **ze_nabas@hotmail.com**
 
 - 📄 Know about my experiences: I started in this programming world a short time ago, each day trying to be my best version and improve my skills.
 
-- ⚡ Fun fact **I love potatoes hahaha**
+- ⚡ Fun fact **I love potatoes, hahaha**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
